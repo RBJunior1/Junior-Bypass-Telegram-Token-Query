@@ -30,7 +30,7 @@ Created by JuniorRB - Telegram Airdrop Bot
 
 ## 🌐 Connect with us
 
-- 💬 Reddit: u/RBJunior01
+- 💬 Telegram: @RBJunior01
 - 📱 Telegram: [Airdrop Daily Official](https://t.me/Airdrop_DailyOfficial)
 - 🎥 YouTube: [Crypto Insight News](https://www.youtube.com/@CryptoInsightNews/)
 
